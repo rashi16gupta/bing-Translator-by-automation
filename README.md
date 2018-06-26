@@ -1,0 +1,1 @@
+# bing-Translator-by-automation
